@@ -23,11 +23,10 @@ We support international sourcing, automotive supply, vehicle-related products, 
 
 ## Contact
 
-Website: https://caglobalgroup.com
+**Website:** https://caglobalgroup.com
 
-Email: [hello@caglobalgroup.com]
+**Email:** [hello@caglobalgroup.com
 
-(mailto:hello@caglobalgroup.com)
 
 ---
 
